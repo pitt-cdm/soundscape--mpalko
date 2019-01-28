@@ -1,5 +1,7 @@
-For the files, I have added two different folders. One folder has individual sounds which has my two friends talking. 
-Ryan is talking about his girlfriend, Kayla, and the other two individuals speaking are Tim and Sebastian.
-They all speak about love in different ways, and I wanted to include all of their perspectives. Then I combined Ryan and Sebastian's voices. This is seen in the What is Love Part 1. As it is updated, I will include different parts. 
+For my final draft, I ended up including a lot more than I originally was going to. I started off the intro with the ocean and questioning "What do you think love is?", and Ryan is the first to respond. Again, he is talking about his girlfriend, Kayla, and how she serenades him. Then I go into Sebastian, Tim, Danny, Sam, and myself. What I am trying to convey is the way that love is portrayed in different viewpoints. Ryan had someone to actually talk about. Tim, Danny, Sebastian, Sam, and I are not referencing anyone in particular. That was the beauty of my project. We also all had something different to say.
 
-For the future, I will be including more voices and more sounds. I should be adding the sound of a treadmill, water boiling, and more later. The goal of these items is to show how love can manifest itself in the things I love to do. It is not just limited to one person or group of people. Love is a form of attention. That is what my soundscape is trying to portray. I will record myself at some point speaking about what I think it is as well.
+In the background, you hear the ocean for a lot of it. I love the beach and nature and I wanted to incorporate that. The crashing of the waves lined up really nicely with the speaking of my friends, so I really liked the unintentional, concurrent sounds. In between a silence, you can hear a treadmill running too. Later, you hear laughing and tennis being played in the background. I recently got into racquetball, so I thought that would be fun to include. Lastly, I speak, and in the background you can hear me sing "Stay With Me" by Sam Smith. I normally don't sing for other people, so this was a step out of my comfort zone. I am not really sure whether I really want to keep it, but I think it adds a nice personal touch,
+
+I played the final recording for the people who helped me make it, and they all really liked it. 
+
+
