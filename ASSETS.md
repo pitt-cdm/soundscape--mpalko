@@ -1,8 +1,11 @@
 Individual Sounds:
 1. Ryan
-2. Tim and Sebastian
-3. Danny (to be added later)
-4. Aidan (to be added later)
-5. Treadmill
-6. Water boiling
-7. Laughing
+2. Tim 
+3. Sebastian
+5. Treadmil
+6. Ocean
+7. Tennis
+8. Myself
+9. Sam 
+10. My singing
+11. Danny
